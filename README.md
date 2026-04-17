@@ -1,0 +1,1 @@
+This GitHub Project and game have a virtual money, parental control recommanded
